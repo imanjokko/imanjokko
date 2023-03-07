@@ -6,4 +6,3 @@
 - 💬 Ask me about my availability for gigs
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love Beyonce
--->
